@@ -1,1 +1,1 @@
-# @jblieschke (they/she)
+# Jade Blieschke (they/she)
